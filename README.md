@@ -10,4 +10,4 @@ meu nome rayanne soares
 
 
 
-![descrição do GIF](https://media1.tenor.com/m/0pQYBxuABY8AAAAd/nayeon-kpop.gif)
+![](https://media1.tenor.com/m/0pQYBxuABY8AAAAd/nayeon-kpop.gif)
